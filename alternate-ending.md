@@ -1,0 +1,1 @@
+Ned opened an ice-cream parlor
